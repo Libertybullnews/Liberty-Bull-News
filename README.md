@@ -1,2 +1,2 @@
 # Liberty-Bull-News
-a conservative news site
+I am a conservative liberitarian who wants to spread the truth.
